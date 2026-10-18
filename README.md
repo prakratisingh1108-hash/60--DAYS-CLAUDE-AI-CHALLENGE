@@ -1,6 +1,6 @@
 # 🚀 60 Days Claude AI Challenge - 60/60 COMPLETED!
 
-> Achieved by **Prakriti Singh** - Elite AI Builder | Klymb AI
+> Achieved by **Prakriti Singh** -  AI Builder | Klymb AI
 
 ## 🎉 60 DAYS. COUNTLESS LESSONS. A NEW BEGINNING.
 
